@@ -1,4 +1,5 @@
 Week 1 Metaverse
+https://roblox.fandom.com/wiki/Metaverse_Champions
 [SPARKS]
 Simple Resort	
 Change your role to a Skier. Go to the Ski Jump at the top of the mountain. Get a score of 1,000 or more on the Ski Jump to obtain the badge. You can repeatedly press the A and D key to get a higher score.
